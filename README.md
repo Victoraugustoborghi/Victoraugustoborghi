@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Victoraugustoborghi
+- I'm a Brazillian studing in Nova Scotia, Canada!
+- I'm currently in high school aiming enter in a good university to get a degree in Computer Science and become an Software Engineer
+- I can speak Portuguese, English and i have some knowladge in French, Spanish and Italian 
